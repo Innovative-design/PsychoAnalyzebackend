@@ -1,0 +1,1 @@
+you can simply screen shot a text conversation and send it to this app and have a complete psychological evaluation of the relationshit between the people in the conversation. it will tell you the likelyhood of honesty and much more
